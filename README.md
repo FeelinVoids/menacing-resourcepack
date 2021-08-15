@@ -1,0 +1,1 @@
+![ゴゴゴ](https://i.imgur.com/LMqI6XJ.png)
